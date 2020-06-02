@@ -1,1 +1,1 @@
-_Pienso, luego existo._
+Información básica._Pienso, luego existo._
